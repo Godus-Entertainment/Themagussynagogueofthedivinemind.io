@@ -1,0 +1,2 @@
+# Themagussynagogueofthedivinemind.io
+MyCloudflare
